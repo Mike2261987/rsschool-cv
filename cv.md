@@ -33,5 +33,3 @@ incomplete higher education, trainings mainly on sales, spin, etc.
 
 confirmed B-1, currently taking English courses online, preparing for IELTS certification, language practice was in the form of talking with foreigners while traveling consisted of simple structures. I want to bring my English level to C-2 in the next two years.
 
-
-
